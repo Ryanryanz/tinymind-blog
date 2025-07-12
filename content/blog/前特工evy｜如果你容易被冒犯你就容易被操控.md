@@ -1,7 +1,8 @@
 ---
-title: 前特工Evy｜如果你容易被冒犯，你就容易被操控。
+title: 前特工Evy｜如果你容易被冒犯，你就容易被操控
 date: 2025-07-12T09:16:02.685Z
 ---
+
 
 ![image.png](https://raw.githubusercontent.com/Ryanryanz/tinymind-blog/main/assets/images/2025-07-12/1752310512949.png)
 Evy Poumpouras：美国特勤局（U.S. Secret Service）前特工（2000–2012），在纽约警察学院受训后，加入特勤局，曾为克林顿、布什、奥巴马等总统及其家人提供保护，并参与复杂刑侦和卧底行动，担任精英测谎官员进行高风险审讯。    
